@@ -1,0 +1,2 @@
+This is going to be my final try to complete Level Zero.
+I am someone who is going to finish this. I am going to properly lwarn. I am going to do this well. I will form a new network. I am resilient. These are my affirmations.
